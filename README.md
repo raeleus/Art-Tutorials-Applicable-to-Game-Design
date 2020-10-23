@@ -7,6 +7,34 @@ https://www.androidarts.com/art_tut.htm
 
 [![How to Draw like Kim Jung Gi](http://img.youtube.com/vi/DmqFbgKWoao/0.jpg)](https://www.youtube.com/watch?v=DmqFbgKWoao "How to Draw like Kim Jung Gi")
 
-#3D
+http://pixeljoint.com/forum/forum_posts.asp?TID=10695
+
+https://www.androidarts.com/pixtut/pixelart.htm
+
+http://pixeljoint.com/forum/forum_posts.asp?TID=11299
+
+https://www.youtube.com/playlist?list=PLLmXZMqb_9sbNLM83NrM005vRQHw1yTKn
+
+https://www.youtube.com/playlist?list=PLjEaoINr3zgH1JI7FtPX_Q9OGFhP-HCUV
+
+https://www.youtube.com/watch?v=r5nvzsslajk
+
+https://www.youtube.com/watch?v=Qb0g_gWrNf8
+
+https://www.youtube.com/c/NewFramePlus/videos
+
+https://www.youtube.com/user/sinixdesign/playlists
+
+https://www.youtube.com/channel/UCI8GDFj5BQCQrSHITFebzkA
+
+https://www.youtube.com/channel/UClM2LuQ1q5WEc23462tQzBg
+
+https://www.youtube.com/channel/UCbdyjrrJAjDIACjCsjAGFAA
+
+https://www.youtube.com/channel/UCTkESEtN569u1ItrV6yn6VA
+
+https://www.youtube.com/watch?v=3VQl0scK5HM
+
+https://www.youtube.com/channel/UCsDxB-CSMQ0Vu_hTag7-2UQ
 
 #Critiques and Analysis
