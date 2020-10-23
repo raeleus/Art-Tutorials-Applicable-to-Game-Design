@@ -1,13 +1,13 @@
 # Art-Tutorials-Applicable-to-Game-Design
 Art resources for developers in the subject of Game Design.
 
-#2D
+# 2D
 
 https://www.androidarts.com/art_tut.htm
 
 [![How to Draw like Kim Jung Gi](http://img.youtube.com/vi/DmqFbgKWoao/0.jpg)](https://www.youtube.com/watch?v=DmqFbgKWoao "How to Draw like Kim Jung Gi")
 
-#Pixel Art
+# Pixel Art
 
 http://pixeljoint.com/forum/forum_posts.asp?TID=10695
 
@@ -19,21 +19,21 @@ http://pixeljoint.com/forum/forum_posts.asp?TID=11299
 
 https://www.youtube.com/playlist?list=PLLmXZMqb_9sbNLM83NrM005vRQHw1yTKn
 
-#3D
+# 3D
 
 https://www.youtube.com/playlist?list=PLjEaoINr3zgH1JI7FtPX_Q9OGFhP-HCUV
 
-#Meta Art:
+# Meta Art:
 
 https://www.youtube.com/watch?v=r5nvzsslajk
 
 https://www.youtube.com/watch?v=Qb0g_gWrNf8
 
-#Character Design:
+# Character Design:
 
 https://www.youtube.com/watch?v=3VQl0scK5HM
 
-#Recommended channels:
+# Recommended channels:
 
 https://www.youtube.com/c/NewFramePlus/videos
 
