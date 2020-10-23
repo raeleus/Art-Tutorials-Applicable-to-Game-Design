@@ -17,20 +17,25 @@ http://pixeljoint.com/forum/forum_posts.asp?TID=11299
 
 #Painting
 
+[![How to Draw like Kim Jung Gi](http://img.youtube.com/vi/DmqFbgKWoao/0.jpg)](https://www.youtube.com/watch?v=DmqFbgKWoao "How to Draw like Kim Jung Gi")
 https://www.youtube.com/playlist?list=PLLmXZMqb_9sbNLM83NrM005vRQHw1yTKn
 
 # 3D
 
+[![How to Draw like Kim Jung Gi](http://img.youtube.com/vi/DmqFbgKWoao/0.jpg)](https://www.youtube.com/watch?v=DmqFbgKWoao "How to Draw like Kim Jung Gi")
 https://www.youtube.com/playlist?list=PLjEaoINr3zgH1JI7FtPX_Q9OGFhP-HCUV
 
 # Meta Art:
 
+[![How to Draw like Kim Jung Gi](http://img.youtube.com/vi/DmqFbgKWoao/0.jpg)](https://www.youtube.com/watch?v=DmqFbgKWoao "How to Draw like Kim Jung Gi")
 https://www.youtube.com/watch?v=r5nvzsslajk
 
+[![How to Draw like Kim Jung Gi](http://img.youtube.com/vi/DmqFbgKWoao/0.jpg)](https://www.youtube.com/watch?v=DmqFbgKWoao "How to Draw like Kim Jung Gi")
 https://www.youtube.com/watch?v=Qb0g_gWrNf8
 
 # Character Design:
 
+[![How to Draw like Kim Jung Gi](http://img.youtube.com/vi/DmqFbgKWoao/0.jpg)](https://www.youtube.com/watch?v=DmqFbgKWoao "How to Draw like Kim Jung Gi")
 https://www.youtube.com/watch?v=3VQl0scK5HM
 
 # Recommended channels:
