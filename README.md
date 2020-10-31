@@ -41,14 +41,19 @@ https://www.youtube.com/playlist?list=PLjEaoINr3zgH1JI7FtPX_Q9OGFhP-HCUV
 
 [![New Frame Plus](http://img.youtube.com/vi/Ri4mA1VWO50/0.jpg)](https://www.youtube.com/c/NewFramePlus/videos "New Frame Plus")
 
-https://www.youtube.com/user/sinixdesign/playlists
+[![Sinix Design](https://yt3.ggpht.com/aTPt8HdOua0nD6jiSgQP0_UWfwWHlWXqp_0JCppj1SzWb00dvJKPlPrNiZN8x1aFSxDXzkr4VQ=w2120-fcrop64=1,00005a57ffffa5a8-k-c0xffffffff-no-nd-rj)](https://www.youtube.com/user/sinixdesign/playlists "Sinix Design")
 
+[![New Frame Plus](http://img.youtube.com/vi/Ri4mA1VWO50/0.jpg)](https://www.youtube.com/c/NewFramePlus/videos "New Frame Plus")
 https://www.youtube.com/channel/UCI8GDFj5BQCQrSHITFebzkA
 
+[![New Frame Plus](http://img.youtube.com/vi/Ri4mA1VWO50/0.jpg)](https://www.youtube.com/c/NewFramePlus/videos "New Frame Plus")
 https://www.youtube.com/channel/UClM2LuQ1q5WEc23462tQzBg
 
+[![New Frame Plus](http://img.youtube.com/vi/Ri4mA1VWO50/0.jpg)](https://www.youtube.com/c/NewFramePlus/videos "New Frame Plus")
 https://www.youtube.com/channel/UCbdyjrrJAjDIACjCsjAGFAA
 
+[![New Frame Plus](http://img.youtube.com/vi/Ri4mA1VWO50/0.jpg)](https://www.youtube.com/c/NewFramePlus/videos "New Frame Plus")
 https://www.youtube.com/channel/UCTkESEtN569u1ItrV6yn6VA
 
+[![New Frame Plus](http://img.youtube.com/vi/Ri4mA1VWO50/0.jpg)](https://www.youtube.com/c/NewFramePlus/videos "New Frame Plus")
 https://www.youtube.com/channel/UCsDxB-CSMQ0Vu_hTag7-2UQ
