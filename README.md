@@ -39,15 +39,13 @@ https://www.youtube.com/playlist?list=PLjEaoINr3zgH1JI7FtPX_Q9OGFhP-HCUV
 
 # Recommended channels:
 
-[![New Frame Plus](http://img.youtube.com/vi/Ri4mA1VWO50/0.jpg)](https://www.youtube.com/c/NewFramePlus/videos "New Frame Plus")
+[![New Frame Plus](https://yt3.ggpht.com/zxIKVQc2mhs_hWDMHIqJW5om2ddGgRd9hSkKxgIZsBwA_tDwYxl65AcRoG4m7gCmoeNtdmuflus=w2120-fcrop64=1,00005a57ffffa5a8-k-c0xffffffff-no-nd-rj)](https://www.youtube.com/c/NewFramePlus/videos "New Frame Plus")
 
 [![Sinix Design](https://yt3.ggpht.com/aTPt8HdOua0nD6jiSgQP0_UWfwWHlWXqp_0JCppj1SzWb00dvJKPlPrNiZN8x1aFSxDXzkr4VQ=w2120-fcrop64=1,00005a57ffffa5a8-k-c0xffffffff-no-nd-rj)](https://www.youtube.com/user/sinixdesign/playlists "Sinix Design")
 
-[![New Frame Plus](http://img.youtube.com/vi/Ri4mA1VWO50/0.jpg)](https://www.youtube.com/c/NewFramePlus/videos "New Frame Plus")
-https://www.youtube.com/channel/UCI8GDFj5BQCQrSHITFebzkA
+[![moderndayjames](https://yt3.ggpht.com/4UrJwTBXHoykBqwDEOhNCYnzLmNdojC_35ztC-nm5JofYqcbfhOmcB2126ts2dpyyaN2yP6hDwI=w2120-fcrop64=1,00005a57ffffa5a8-k-c0xffffffff-no-nd-rj)](https://www.youtube.com/channel/UCI8GDFj5BQCQrSHITFebzkA "moderndayjames")
 
-[![New Frame Plus](http://img.youtube.com/vi/Ri4mA1VWO50/0.jpg)](https://www.youtube.com/c/NewFramePlus/videos "New Frame Plus")
-https://www.youtube.com/channel/UClM2LuQ1q5WEc23462tQzBg
+[![New Frame Plus](https://yt3.ggpht.com/VCbZ9JyIoK0ck0Dr20qtQtULjBuWTbQUqEV19idXbOdsVEhuwyQKgZjww1AdwK3y4B5umlCZ9Cs=w2120-fcrop64=1,00005a57ffffa5a8-k-c0xffffffff-no-nd-rj)](https://www.youtube.com/channel/UClM2LuQ1q5WEc23462tQzBg "New Frame Plus")
 
 [![New Frame Plus](http://img.youtube.com/vi/Ri4mA1VWO50/0.jpg)](https://www.youtube.com/c/NewFramePlus/videos "New Frame Plus")
 https://www.youtube.com/channel/UCbdyjrrJAjDIACjCsjAGFAA
